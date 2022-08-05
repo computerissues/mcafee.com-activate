@@ -11,18 +11,18 @@ mcáfee.com activate
 
 Install mcáfee antivirus on your device and enter 25 digit mcáfee activation code to activate and enable your antivirus software. Start using mcáfee for making your data and device safe from online threats. 
 
-Download and install mcáfee antivirus on your device with the easy to execute steps at **`mcáfee.com activate <https://mcafeec0m-activate.readthedocs.io/en/latest/>`_** and enter mcáfee product key for activation.
+Download and install mcáfee antivirus on your device with the easy to execute steps at **_mcáfee.com activate_** and enter mcáfee product key for activation.
 
 Activate mcáfee using activation code?
 ########
 
-* Open the web browser and enter the website link **`mcáfee.com activate <https://mcafeec0m-activate.readthedocs.io/en/latest/>`_** in the text field.
+* Open the web browser and enter the website link **_mcáfee.com activate_** in the text field.
 * Type the mcáfee activation code given on the backside of the retail card.
 * Type the email ID.
 * Choose the **"Language"** and **"Country"** options.
 * Press on the Submit option. 
 
-Easy way To Download mcáfee Antivirus Using **mcáfee.com activate**
+Easy way To Download mcáfee Antivirus Using **_mcáfee.com activate_**
 ########
 
 * First Visit the mcáfee official link provided on your package through any internet browser you wish.
@@ -32,7 +32,7 @@ Easy way To Download mcáfee Antivirus Using **mcáfee.com activate**
 * Now Select the preferred payment method 
 * Next finish up the payment to get the product.
 * Go to the **“My Account”** tab.
-* Download the **`mcáfee.com activate <https://mcafeec0m-activate.readthedocs.io/en/latest/>`_** setup from there.
+* Download the **_mcáfee.com activate_** setup from there.
 * Cautiously read through the terms and conditions along with license agreement.
 * When you are finished reading.
 * Next press **“agree”** to conclude the process.
@@ -50,6 +50,6 @@ What is the Procedure to Install mcáfee.com activate?
 * Now select the language 
 * Then select the country.
 * Go through the legal agreement to install mcáfee setup on the device.
-* Tap on the **“Install”** option provided on the next **`mcáfee.com activate <https://mcafeec0m-activate.readthedocs.io/en/latest/>`_** webpage.
+* Tap on the **“Install”** option provided on the next **_mcáfee.com activate_** webpage.
 * Let mcáfee be set up to complete its installation procedure.
 * Restart the device to make changes and you are done.
