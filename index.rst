@@ -11,7 +11,7 @@ mcáfee.com activate
 
 Install mcáfee antivirus on your device and enter 25 digit mcáfee activation code to activate and enable your antivirus software. Start using mcáfee for making your data and device safe from online threats. 
 
-Download and install mcáfee antivirus on your device with the easy to execute steps at **_mcáfee.com activate_** and enter mcáfee product key for activation.
+Download and install mcáfee antivirus on your device with the easy to execute steps at _**mcáfee.com activate**_ and enter mcáfee product key for activation.
 
 Activate mcáfee using activation code?
 ########
